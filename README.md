@@ -1,2 +1,9 @@
 # hello-world
-First repository
+
+HELLO WORLD
+
+FINALLY
+
+THE TIME HAS COME TO MEET THE GREATEST 
+
+MEE!!!!!!
